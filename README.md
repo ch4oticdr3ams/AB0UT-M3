@@ -6,7 +6,7 @@
  ╰┈➤ 
 :: you’ll usually find me playing ponytown or on tiktok!  AND I LOVEEE matching with RYUUU! Whether it's pfps, bios, or even playlist! I ADORE MATCHING. !!-`♡´-
 
-![image](https://github.com/user-attachments/assets/f3eb9446-642a-42a6-8b7d-0b80023182a0)
+![image](https://github.com/user-attachments/assets/f3eb9446-642a-42a6-8b7d-0b80023182a0) 
 
 
 :: I’m super fun, easy to talk to, and someone they can open up to. I always try to create a space where people feel comfortable, understood, and heard!! 𓊆ྀི❤︎𓊇ྀི
