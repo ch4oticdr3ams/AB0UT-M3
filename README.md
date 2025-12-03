@@ -1,5 +1,7 @@
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
+
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=3161F7&background=FFFFFF00&width=435&lines=%E2%80%98+I+love+my+best+friend+!+%E2%80%98;%E2%80%98+HES+THE+COOLEST+!+%E2%80%98+;%E2%80%98+No+one+can+replace+him+!+%E2%80%98)](https://git.io/typing-svg)
 
 # ⸝⸝˚⊱🪷⊰˚ ᴀʙᴏᴜᴛ ᴍᴇ ˚₊‧
