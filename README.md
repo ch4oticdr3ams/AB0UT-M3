@@ -33,8 +33,6 @@
 
 ₍⸍⸌̣ʷ̣̫⸍̣⸌₎ loona! (DAUGHTER)
 
-✦ 𝐤𝐚𝐭 / 𝐜𝐚𝐭 ✦ (BEST FRIEND)
-
 :: K4SP3R !! (CHILD)
 
 ₍⸝⸝´• ·̫ •̥`⸝⸝₎♡ (sorry if i didn’t mention you!!) ♡
